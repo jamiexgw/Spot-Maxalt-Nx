@@ -25,8 +25,6 @@ A nivel operativo, **Spot Maxalt Nx** recoge los datos relevantes, los ordena en
 
 Con **Spot Maxalt Nx**, esas mismas reglas pueden encadenarse en secuencias más complejas, con bifurcaciones para tratar excepciones frecuentes: cambios regulatorios, cierres trimestrales, campañas muy concentradas. Para muchos responsables, el mejor modo de valorar todo esto es **[ver qué puede hacer Spot Maxalt Nx por tu equipo](https://spotmaxaltnx.es/?utm_term=annghesu170)** en un caso end-to-end reducido, antes de extenderlo al resto de la organización.
 
-![Panel de control con series temporales, tarjetas de alertas y estado de ejecución](https://images.pexels.com/photos/8867431/pexels-photo-8867431.jpeg?auto=compress&cs=tinysrgb&w=1170&h=780&dpr=1)
-
 ## Experiencia de uso en España: menos fricción, más continuidad de trabajo
 Una crítica habitual de los equipos españoles hacia ciertos sistemas “corporativos” es que parecen diseñados para la presentación, pero no para el día a día. El enfoque de **Spot Maxalt Nx** va en sentido inverso: las acciones clave están a uno o dos clics, la navegación se mantiene coherente de una sección a otra y los menús contextuales sólo aparecen donde aportan claridad o acortan pasos.
 
